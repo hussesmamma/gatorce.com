@@ -1,2 +1,2 @@
-VI ÄR IGÅNG
+VI ÄR IGÅNG.
 
